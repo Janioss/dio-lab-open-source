@@ -2,7 +2,7 @@
 
 ### Especialista em Telecomunicações 
 
-Tenho 22 anos de experiencia em Telecom e trabalho há mais de 17 anos em uma das maiores empresas de Telecomunicações do Mundo!
+Tenho 22 anos de experiencia em Telecom e trabalho há mais de 17 anos em uma das maiores empresas de Telecomunicações!
 
 ### Objetivos ###
 
